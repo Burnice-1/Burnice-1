@@ -17,4 +17,5 @@ You can click the Preview link to take a look at your changes.
 # ＃やっぱり荒娯楽😎 
 普通に過疎ってるから是非話に来てね！
 https://discord.gg/pHZ5VkSSgm
+
 おすすめサーバー
